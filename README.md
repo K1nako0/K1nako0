@@ -5,8 +5,7 @@
 > The power inside me is about to explode
 > Ah, ah, ah, ah
 > hazero riaru! hajikero shinapusu! panisshimento deisu waarudo!
->
-> ​                     Jya ou shin gan!!!! ON!!!!                      
+>                    
 
 ## :bulb: 语言
 
@@ -28,13 +27,12 @@
 
 :sparkling_heart:一个不成熟的网安小白、看啥啥不会的小白、什么语言都不精通的小白，不会写脚本不会写代码的小白:sob:
 
-:sparkling_heart::smile:
 
 :star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star:
 
 &emsp;  &nbsp;
 
- &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp;   &nbsp; &nbsp; &nbsp;  But ，I'm still a rookie
+ &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp;   &nbsp; &nbsp; &nbsp; 
 
 &emsp;  
 
