@@ -28,7 +28,7 @@
 
 :sparkling_heart:一个不成熟的网安小白、看啥啥不会的小白、什么语言都不精通的小白，不会写脚本不会写代码的小白:sob:
 
-:sparkling_heart:还有很长一段路要走，还有很多东西没有学，还有很多东西没有接触到，让我们共同努力坚持走下去。:smile:
+:sparkling_heart::smile:
 
 :star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star::star:
 
