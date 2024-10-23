@@ -3,8 +3,7 @@
 ---
 
 > The power inside me is about to explode
-> Ah, ah, ah, ah
-> hazero riaru! hajikero shinapusu! panisshimento deisu waarudo!
+>
 >                    
 
 ## :bulb: 语言
