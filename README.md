@@ -32,13 +32,6 @@
 
  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp;   &nbsp; &nbsp; &nbsp; 
 
-&emsp;  
-
-&emsp;  
-
-&emsp;  
-
-&emsp;  
 
 ![](http://k1nako-images.netlify.app/images/touxiang.jpg)
 
